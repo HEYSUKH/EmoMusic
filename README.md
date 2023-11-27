@@ -3,7 +3,8 @@ Let's Fill the gap between Emotions and TEchnical Field, by EMSR.
 Open to Contribute; Free to Use (Creatibve Commons); Currently under Construction.
 Developed by SUKH, (c) 2023.
 ## Presentation-Preview
-![https://www.canva.com/design/DAF1SCe5FZM/V857N9f4kJd2nctXopQG2g/edit?utm_content=DAF1SCe5FZM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://github.com/HEYSUKH/EmoMusic/assets/147260152/7fb9342c-e667-4d6f-a360-56010cc0f96f)
+[<img src="https://github.com/HEYSUKH/EmoMusic/assets/147260152/7fb9342c-e667-4d6f-a360-56010cc0f96f" width="100%">](https://www.canva.com/design/DAF1SCe5FZM/V857N9f4kJd2nctXopQG2g/edit?utm_content=DAF1SCe5FZM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 , or preview Presentation from [Here](https://www.canva.com/design/DAF1SCe5FZM/V857N9f4kJd2nctXopQG2g/edit?utm_content=DAF1SCe5FZM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
